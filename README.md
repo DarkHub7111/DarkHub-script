@@ -1,0 +1,2 @@
+# DarkHub-script
+Ninja legends 
